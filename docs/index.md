@@ -8,7 +8,6 @@
 
 - [LinkedIn](https://www.linkedin.com/in/merrybypractice)
 - [BlueSky](https://bsky.app/profile/merrybypractice.bsky.social)
-- [X](https://x.com/merryinthemech)
 
 ## Resume
 
